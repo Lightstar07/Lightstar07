@@ -1,4 +1,4 @@
 # **👋你好，我是Lightstar07！**
-这是我的GitHub账号，
+我的邮箱：lightstar07@outlook.com
+哔哩哔哩：@辜负佛法
 
-我将会在这里发布一些我自己做的项目
